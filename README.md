@@ -1,2 +1,1 @@
-# Oliver Morgan
-# 20. 1. 2022
+# Oliver Morgan 20. 1. 2022
